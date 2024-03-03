@@ -1,2 +1,3 @@
-# Jogos-Apps-MOD
-Lista de jogos e ferramentas *apps* originais ou modificadas ! tudo via MEDIAFIRE
+🆕 Última atualização: 3 de Março de 2024 - 00:35
+👩🏽‍💻 Editor: 0Dino
+📧 Colabore/Pix: 
